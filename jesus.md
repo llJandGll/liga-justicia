@@ -1,0 +1,1 @@
+Jesús de Nazaret,Nota 5​Cristo,Nota 6​ Jesucristo o simplemente Jesús Nota 7​ (Reino de Judea, Imperio romano; ca. 4 a. C.Nota 8​-Jerusalén, provincia de Judea, Imperio romano; 30-33 d. C.), fue un predicador y líder religioso judío. Es la figura central del cristianismo, la religión más grande del mundo y una de las más influyentes de la historia.2​3
